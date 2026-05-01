@@ -17,8 +17,26 @@ always tell me if your uncomfortable w me okay?
       
 
 
-    "𝙖𝙡𝙬𝙖𝙮𝙨 𝙗𝙚 𝙝𝙖𝙥𝙥𝙮.. 𝙮𝙤𝙪 𝙣𝙚𝙫𝙚𝙧 𝙠𝙣𝙤𝙬 𝙬𝙝𝙚𝙣 𝙮𝙤𝙪 𝙬𝙞𝙡𝙡 𝙛𝙡𝙮" - 𝚖𝚎
+    "𝙨𝙤𝙢𝙚 𝙗𝙞𝙧𝙙𝙨 𝙖𝙧𝙚 𝙣𝙚𝙫𝙚𝙧 𝙢𝙚𝙖𝙣𝙩 𝙩𝙤 𝙛𝙡𝙮.." - 𝚖𝚎
 
 <img src="https://cdn.discordapp.com/attachments/1490576547583754334/1499835121434624092/4a42ed361491c19f0756b0df3f9e5402.jpg?ex=69f63dce&is=69f4ec4e&hm=78f394962e8ba381d5dae4db124a91d9c23d1f8d737a9414d844f35a8e19febd&" alt="My image" width="120">
 
-:p work in progress... 
+:p .・゜゜・ »»————> 𝔸𝔹𝕆𝕌𝕋 ME
+
+𝙷𝚊𝚛𝚕𝚎 hvy KIN , .・゜゜・
+they're so me in a way.. 
+
+𝙡𝙞𝙠𝙚𝙨 : green apples.. yum they're actually good NGL I prefer sour okay? with a slightly sweet flavor
+- uhm I love my cockroaches :3
+- I love flowers and the trees especially weeping Willows and blackthorns :3 they're pretty
+-  uhmm I love green..! sade and mint! 
+ green can be eerie and CALMING
+
+  𝘿𝙄𝙎𝙇𝙄𝙆𝙀𝙎 : 
+    🪻 ; 🍇 jokes. 
+    𝚖𝚒𝚗𝚘𝚛 𝚡 𝚊𝚍𝚞𝚕𝚝 𝚌𝚘𝚗𝚝𝚎𝚗𝚝 𝚒𝚜 𝚊 𝚗𝚘 𝚗𝚘 𝚗𝚘 , 𝚘𝚔𝚎𝚢? 𝚒𝚝'𝚜 𝚊 𝚎𝚠 𝚎𝚠 𝚎𝚠
+
+
+    <img src="https://cdn.discordapp.com/attachments/1490576547583754334/1499840978989875334/Periplaneta-americana__ScaleWidthWzEwMjRd.jpg?ex=69f64343&is=69f4f1c3&hm=d0ddf4aa1772bc9241a59f91878d61e329593fe288c4e800b050e1c0f496a1d7&" alt="My image" width="50">
+
+    he will eat you
