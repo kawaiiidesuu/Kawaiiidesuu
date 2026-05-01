@@ -34,9 +34,6 @@ they're so me in a way..
 
   𝘿𝙄𝙎𝙇𝙄𝙆𝙀𝙎 : 
     🪻 ; 🍇 jokes. 
-    𝚖𝚒𝚗𝚘𝚛 𝚡 𝚊𝚍𝚞𝚕𝚝 𝚌𝚘𝚗𝚝𝚎𝚗𝚝 𝚒𝚜 𝚊 𝚗𝚘 𝚗𝚘 𝚗𝚘 , 𝚘𝚔𝚎𝚢? 𝚒𝚝'𝚜 𝚊 𝚎𝚠 𝚎𝚠 𝚎𝚠
+    𝚖𝚒𝚗𝚘𝚛 𝚡 𝚊𝚍𝚞𝚕𝚝 𝚌𝚘𝚗𝚝𝚎𝚗𝚝 𝚒𝚜 𝚊 𝚗𝚘 𝚗𝚘 𝚗𝚘 , 𝚘𝚔𝚎𝚢? 𝚒𝚝'𝚜 𝚊 𝚎𝚠ewewewew
 
-
-    <img src="https://cdn.discordapp.com/attachments/1490576547583754334/1499840978989875334/Periplaneta-americana__ScaleWidthWzEwMjRd.jpg?ex=69f64343&is=69f4f1c3&hm=d0ddf4aa1772bc9241a59f91878d61e329593fe288c4e800b050e1c0f496a1d7&" alt="My image" width="50">
-
-    he will eat you
+   follow git or Jerry  will eat you... 😵‍💫🥹
