@@ -1,6 +1,6 @@
 ## HEKOKELO!! 
 
-<iframe src="https://https://tenor.com/view/harlequin-the-freak-circus-harlequin-freakcircus-tfc-gif-15607767365612381310/VIDEO_ID"></iframe>
+
 
 
  𝚂𝚒𝚕𝚕𝚒𝚎𝚜 ;3 
