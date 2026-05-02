@@ -37,3 +37,6 @@ they're so me in a way..
     𝚖𝚒𝚗𝚘𝚛 𝚡 𝚊𝚍𝚞𝚕𝚝 𝚌𝚘𝚗𝚝𝚎𝚗𝚝 𝚒𝚜 𝚊 𝚗𝚘 𝚗𝚘 𝚗𝚘 , 𝚘𝚔𝚎𝚢? 𝚒𝚝'𝚜 𝚊 𝚎𝚠ewewewew
 
    follow git or Jerry  will eat you... 😵‍💫🥹
+
+
+## STRAW AND ATABOOK SOON! 
