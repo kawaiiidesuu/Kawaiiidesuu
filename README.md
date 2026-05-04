@@ -26,17 +26,7 @@ always tell me if your uncomfortable w me okay?
 𝙷𝚊𝚛𝚕𝚎 hvy KIN , .・゜゜・
 they're so me in a way.. 
 
-𝙡𝙞𝙠𝙚𝙨 : green apples.. yum they're actually good NGL I prefer sour okay? with a slightly sweet flavor
-- uhm I love my cockroaches :3
-- I love flowers and the trees especially weeping Willows and blackthorns :3 they're pretty
--  uhmm I love green..! sade and mint! 
- green can be eerie and CALMING
-
-  𝘿𝙄𝙎𝙇𝙄𝙆𝙀𝙎 : 
-    🪻 ; 🍇 jokes. 
-    𝚖𝚒𝚗𝚘𝚛 𝚡 𝚊𝚍𝚞𝚕𝚝 𝚌𝚘𝚗𝚝𝚎𝚗𝚝 𝚒𝚜 𝚊 𝚗𝚘 𝚗𝚘 𝚗𝚘 , 𝚘𝚔𝚎𝚢? 𝚒𝚝'𝚜 𝚊 𝚎𝚠ewewewew
-
-   follow git or Jerry  will eat you... 😵‍💫🥹
+no weird 🍇 jokes.. and minor x adult okay
 
 
 ## STRAW AND ATABOOK SOON! 
