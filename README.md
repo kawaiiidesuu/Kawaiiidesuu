@@ -1,5 +1,5 @@
 <marquee behavior="scroll" direction="left">
-  my dear.. 
+    "my dear"
 </marquee>
   
 
@@ -13,9 +13,12 @@ no.1 Harlequin fan :3
 heh ... .・゜゜・ green. 
 always tell me if your uncomfortable w me okay? 
       c+h is okeyy! don't be shy I don't bite muehehhe 
+      ! 
+𝙷𝚊𝚛𝚕𝚎 hvy KIN , .・゜゜・
+they're so me in a way.. 
 
 
-
+𝓶𝓮𝓸𝔀
       
 
 
@@ -23,9 +26,8 @@ always tell me if your uncomfortable w me okay?
 
 <img src="https://cdn.discordapp.com/attachments/1490576547583754334/1499835121434624092/4a42ed361491c19f0756b0df3f9e5402.jpg?ex=69f63dce&is=69f4ec4e&hm=78f394962e8ba381d5dae4db124a91d9c23d1f8d737a9414d844f35a8e19febd&" alt="My image" width="120">
 
-:p .・゜゜・ »»————> 𝔸𝔹𝕆𝕌𝕋 ME
+:p .・゜゜・
+𝙸 𝚊𝚖 𝚏𝚛𝚎𝚊𝚔𝚢 𝚋𝚞𝚝 𝚝𝚑𝚊𝚝 𝚍𝚘𝚎𝚜𝚗'𝚝 𝚖𝚎𝚊𝚗 𝙸 𝚍𝚘𝚗'𝚝 𝚌𝚊𝚛𝚎 𝚊𝚋𝚘𝚞𝚝 𝚢𝚘𝚞𝚛 𝚙𝚎𝚛𝚜𝚘𝚗𝚊𝚕 𝚜𝚙𝚊𝚌𝚎 <3
 
-𝙷𝚊𝚛𝚕𝚎 hvy KIN , .・゜゜・
-they're so me in a way.. 
 
 no weird 🍇 jokes.. and minor x adult okaokay
