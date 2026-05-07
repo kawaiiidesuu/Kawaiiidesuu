@@ -1,5 +1,7 @@
-## HEKOKELO!! 
-
+<marquee behavior="scroll" direction="left">
+  my dear.. 
+</marquee>
+  
 
 
 
@@ -26,6 +28,4 @@ always tell me if your uncomfortable w me okay?
 𝙷𝚊𝚛𝚕𝚎 hvy KIN , .・゜゜・
 they're so me in a way.. 
 
-no weird 🍇 jokes.. and minor x adult okay
-
-
+no weird 🍇 jokes.. and minor x adult okaokay
