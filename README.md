@@ -29,4 +29,3 @@ they're so me in a way..
 no weird 🍇 jokes.. and minor x adult okay
 
 
-## STRAW AND ATABOOK SOON! 
